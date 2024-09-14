@@ -4,6 +4,10 @@
 
   ⚡️ 💀💀💀 ⚡️
 
+
+https://github.com/user-attachments/assets/ceca6ac4-29a4-4ce3-8018-f76a3222bc2e
+
+
 [![Watch the video](https://raw.githubusercontent.com/R4GN4R0K-SEC/Anonghost-Prod2013/main/Ghost0001.gif
 )](https://raw.githubusercontent.com/.../main/Anonghost.mov)
 
